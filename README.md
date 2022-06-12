@@ -1,3 +1,6 @@
 # Flip-a-Coin
 
-<img src="https://lh3.googleusercontent.com/epOT8s3XUZSOJApLmJVkHw7kNH1eBL3TzCFzAdAYOn0jm2iT5LPWepRXEPmE8hUp6Kf30q5DetY6uGvq4QEjLtozc_CuVhne3gIAmTtcs5L_JdQiUv-y-wQWH7kDkHqnvwCRaOJhSA=w2400" >
+ 
+
+https://user-images.githubusercontent.com/42178214/173226244-c0d345e6-9763-4507-a246-548d7a3d8c67.mp4
+
